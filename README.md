@@ -1,7 +1,7 @@
 # CV_RamonTrrl_Academico_Profesional
 
 **Marco Ramón Torrel Villanueva**  
-Ingeniero Agrónomo · M.Sc. 
+Ingeniero Agrónomo | M.Sc. Producción y Extensión Agrícola
 
 ---
 
@@ -24,5 +24,6 @@ No hay nada más importante que lo que tienes dentro. Y más vale tarde que nunc
 ---
 
 *No habrá una luz fuerte y deslumbrante que despidan las pocas acreditaciones, pero son como pequeñas luciérnagas que tratan de juguetear y hacer un pequeño remedo de la oscuridad de un cielo estrellado. Y mi currículo, que alojaré en mi página, será eso: honesto, pequeño y real.*
+
 
 
