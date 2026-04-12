@@ -1,6 +1,4 @@
 # CV_RamonTrrl_Academico_Profesional
-Mi trayectoria de vida en el ambito académico y profesional
-# CV_RamonTrrl_Academico_Profesional
 
 **Marco Ramón Torrel Villanueva**  
 Ingeniero Agrónomo · M.Sc. 
