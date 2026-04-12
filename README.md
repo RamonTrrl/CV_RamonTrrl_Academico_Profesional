@@ -1,8 +1,8 @@
 # CV_RamonTrrl_Academico_Profesional
+![foto papi churro](https://raw.githubusercontent.com/RamonTrrl/pagina-homenaje/main/foto%20papi%20churro%20vectorizada.jpeg)
 
 **Marco Ramón Torrel Villanueva**  
 Ingeniero Agrónomo | M.Sc. Producción y Extensión Agrícola
-![foto papi churro](https://raw.githubusercontent.com/RamonTrrl/pagina-homenaje/main/foto%20papi%20churro%20vectorizada.jpeg)
 
 ---
 
