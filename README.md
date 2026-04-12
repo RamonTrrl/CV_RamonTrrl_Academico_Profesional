@@ -13,7 +13,7 @@ En esta hoja de vida he tratado de incluir lo más destacado e interesante de mi
 
 ## Una nota de honestidad
 
-Me cruzó por la cabeza incluir algunas certificaciones truchas, con la idea de hacerlo más cool y parecer menos tonto de lo que soy, y hasta incluir una experiencia profesional ficticia. No obstante, no sé si fue algo que comí y que me cayó fatal, o tuve una mala noche o día, o lo que sea, pues me aconteció un rapto ilusorio de honestidad. Esa luz de clarividencia me hizo recordar que lo que aprendí a lo largo de toda mi vida, o aquellos 27 años de mi vida como emprendedor independiente, en las diferentes empresas que inicié o continué, pues en todos esos años y, sobre todo ahora, después de haber colgado los "hábitos de los pequeños negocios", me he dado cuenta de que nada sirve tratar de ser quien no soy.
+Me cruzó por la cabeza incluir algunas certificaciones truchas, con la idea de hacerlo más cool y parecer menos tonto de lo que soy, y hasta incluir una experiencia profesional ficticia. No obstante, no sé si fue algo que comí y que me cayó fatal, o tuve una mala noche o día, o lo que sea, pues me aconteció un rapto iluso de honestidad. Esa luz de clarividencia me hizo recordar que lo que aprendí a lo largo de toda mi vida, o aquellos 27 años de mi vida como emprendedor independiente, en las diferentes empresas que inicié o continué, pues en todos esos años y, sobre todo ahora, después de haber colgado los "hábitos de los pequeños negocios", me he dado cuenta de que nada sirve tratar de ser quien no soy.
 
 ---
 
