@@ -9,7 +9,7 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com
 
 ---
 
-## 🎓 Títulos académicos (letra Chiquita: Los pergaminos de un eterna ilusión ... ah!! y orgullo de tus viejos)
+## 🎓 Títulos académicos (letra Chiquita: Los pergaminos de un eterna ilusión ... ah!! y orgullo de tus viejos👴👩‍🦳)
 
 | Título | Institución | Año | Documento |
 |---|---|---|---|
@@ -19,7 +19,7 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com
 
 ---
 
-## 🌍 Formación internacional (letra chiquita: Vaya, no contaba con ello)
+## 🌍 Formación internacional (letra chiquita: Vaya, no contaba con ello😮)
 
 | Curso | Institución | País | Año | Documento |
 |---|---|---|---|---|
@@ -28,7 +28,7 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com
 
 ---
 
-## 🗣️ Idiomas (letra chiquita: Se te olvidó el ["inglés peruano"](https://cronicasdeilusos.blogspot.com/2021/10/ingles-peruano.html))
+## 🗣️ Idiomas (letra chiquita: Se te olvidó el ["inglés peruano"](https://cronicasdeilusos.blogspot.com/2021/10/ingles-peruano.html)😊)
 
 | Idioma | Nivel escrito | Nivel hablado |
 |---|---|---|
@@ -38,7 +38,7 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com
 
 ---
 
-## 💼 Experiencia profesional (Letra chiquita: Bueno, "algo es algo peor es nada")
+## 💼 Experiencia profesional (Letra chiquita: Bueno, "algo es algo peor es nada"😏)
 
 **1990 – 1995** · Investigador becario
 Centro Internacional de la Papa (CIP) — Departamento de Entomología
@@ -57,7 +57,7 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 👨‍🏫 Trayectoria docente (Letra chiquita: Por fin, algo interesante)
+## 👨‍🏫 Trayectoria docente (Letra chiquita: Por fin, algo interesante👏)
 
 | Año | Institución | Asignatura | Nivel | Documento |
 |---|---|---|---|---|
@@ -65,7 +65,7 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 🏅 Participación en congresos (Letra chiquita: No pareces ser uno de los "Hnos TV")
+## 🏅 Participación en congresos (Letra chiquita: No pareces ser uno de los "Hnos TV"😍)
 
 | Evento | Ponencia | Año | Documento |
 |---|---|---|---|
@@ -73,7 +73,7 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 🔬 Membresías profesionales (Letra chiquita: Solía aportar algunos centavos ... bueno como dice mi vieja: te dan un alfiler para sacar un barreta)
+## 🔬 Membresías profesionales (Letra chiquita: Solía aportar algunos centavos ... bueno como dice mi vieja: te dan un alfiler para sacar un barreta😪)
 
 | Organización | Documento |
 |---|---|
@@ -82,14 +82,14 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 📄 Publicaciones académicas (Letra chiquita: Bueno te jubilars en Scopus y nadie leerá tus pdf... mejor sigue con tu blog)
+## 📄 Publicaciones académicas (Letra chiquita: Bueno te jubilars en Scopus y nadie leerá tus pdf... mejor sigue con tu blog😭)
 
 - Torrel, M., Canto, M. (1992). *Efecto de nueve enmiendas orgánicas en el control de Globodera pallida Raza P4A*. II Congreso Peruano de Nematología. Cajamarca, Perú.
 - Torrel, M., Alcázar, J. (2022). *Avances del estudio del conocimiento del control del gorgojo de los Andes (Premnotrypes vorax) en la comunidad de Chilimpampa, Cajamarca-Perú*. CIENER 2022.
 
 ---
 
-## 📜 Certificaciones académicas (Letra chiquita: Sólo "una" ... diablos!! quizás deberias hacer menos publicaciones en rrss y más de este tipo) 
+## 📜 Certificaciones académicas (Letra chiquita: Sólo "una" ... diablos!! quizás deberias hacer menos publicaciones en rrss y más de este tipo😣) 
 
 | Curso | Institución | Año | Documento |
 |---|---|---|---|
@@ -97,7 +97,7 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 💻 Certificaciones digitales (Letra chiquita: Siempre hay alguien más que te superará ... pero quién??)
+## 💻 Certificaciones digitales (Letra chiquita: Siempre hay alguien más que te superará ... pero quién??✔)
 
 👉 Ver repositorio completo: [Certificados-digitales](https://github.com/RamonTrrl/Certificados-digitales)
 
@@ -114,7 +114,7 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 🖥️ Habilidades digitales (Letra chiquita: Baya todo un nerdcito geek)
+## 🖥️ Habilidades digitales (Letra chiquita: Baya todo un nerdcito geek💎)
 
 - Suite ofimática: Word, Excel, PowerPoint, Power BI, SPSS
 - Desarrollo web: HTML, CSS, JavaScript básico
@@ -126,7 +126,7 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 🌐 Publicaciones digitales (Letra chiquita: Todo un escritor ... o un peor autor)
+## 🌐 Publicaciones digitales (Letra chiquita: Todo un escritor ... o un peor autor✍)
 
 - 📝 [Crónicas de un observador](https://cronicasdeilusos.blogspot.com/)
 - 📰 [Revista JifiNET](https://jifinetcom.wordpress.com/)
@@ -134,7 +134,7 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 📞 Referencias (letra chiqita: Solian ser muy amables... espero den mejores reseñas que las que uno mismo se tiene)
+## 📞 Referencias (letra chiqita: Solian ser muy amables... espero den mejores reseñas que las que uno mismo se tiene🙌)
 
 | Nombre | Cargo | Contacto |
 |---|---|---|
