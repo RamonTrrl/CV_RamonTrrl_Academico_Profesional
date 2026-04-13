@@ -27,7 +27,10 @@ No hay nada más importante que lo que tienes dentro 💎. Y "más vale tarde qu
 
 ---
 
-✨*No habrá una luz fuerte y deslumbrante que despidan las pocas acreditaciones que he logrado hasta ahora, pero son como pequeñas luciérnagas que tratan de juguetear y hacer un pequeño remedo de la oscuridad de un cielo estrellado. Y mi currículo, que alojaré en mi página, será solo eso: honesto, pequeño y real.*✨
+✨*No habrá una luz fuerte y deslumbrante que despidan las pocas acreditaciones que he logrado hasta ahora, pero son como pequeñas luciérnagas que tratan de juguetear y hacer un pequeño remedo de la oscuridad de un cielo estrellado. Y mi currículo, que alojaré en mi página, será solo eso: honesto, pequeño y real.*✨  
+
+---  
+📄 [Pincha aquí para mirar mi poco presentable CV completo](CV.md)
 
 
 
