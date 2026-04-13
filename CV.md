@@ -142,4 +142,4 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-*🔙 [Volver al inicio](README.md)*
+*🔙 [Volver a ver mis reflexiones baratas](README.md)*
