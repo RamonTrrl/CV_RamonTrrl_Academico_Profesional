@@ -23,7 +23,7 @@ Me cruzó por la cabeza incluir algunas certificaciones truchas, con la idea de 
 
 ## 🕊️Lo que de verdad vale
 
-No hay nada más importante que lo que tienes dentro 💎. Y "más vale tarde que nunca" para entender que son los valores y la ética, y no las habilidades o, como se diría académicamente, *las competencias*, son las cualidades más difíciles de cultivar y adquirir. Pues cualquier documentito sellado y refrendado sobre alguna habilidad o pericia académica 🏅no podrá superar a ese papel que no tiene sello, no tiene aval, ni siquiera tiene un soporte en la academia que lo respalde. Es, por lo tanto, el más difícil de conseguir: es una cuestión moral íntima entre tú y tu yo interior 👁‍🗨. Y al cual no lo puedes engañar ni hacer trampa.
+No hay nada más importante que lo que tienes dentro 💎. Y ["más vale tarde que nunca"](https://cronicasdeilusos.blogspot.com/2021/02/internet-los-50_29.html) para entender que son los valores y la ética, y no las habilidades o, como se diría académicamente, *las competencias*, son las cualidades más difíciles de cultivar y adquirir. Pues cualquier documentito sellado y refrendado sobre alguna habilidad o pericia académica 🏅no podrá superar a ese papel que no tiene sello, no tiene aval, ni siquiera tiene un soporte en la academia que lo respalde. Es, por lo tanto, el más difícil de conseguir: es una cuestión moral íntima entre tú y tu yo interior 👁‍🗨. Y al cual no lo puedes engañar ni hacer trampa.
 
 ---
 
