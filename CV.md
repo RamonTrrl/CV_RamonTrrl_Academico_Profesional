@@ -1,4 +1,4 @@
-# 🎓💼✨ Currículum Vitae
+# 🎓💼✨ Currículum Vitae (Letra Chiquita: un verdadero ejemplo ... pero a no seguir😋)
 ## Marco Ramón Torrel Villanueva
 **Ingeniero Agrónomo | M.Sc. Producción y Extensión Agrícola**
 📬 ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com
