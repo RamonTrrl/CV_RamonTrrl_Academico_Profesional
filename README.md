@@ -8,7 +8,7 @@ Ingeniero Agrónomo | M.Sc. Producción y Extensión Agrícola
 
 ---
 
-## 🌾Acerca de ... uno de mis repos favoritos
+## 🌾"Acerca de" ... uno de mis repos favoritos
 
 En esta hoja de vida he tratado de incluir lo más destacado e interesante de mi paso por la academia y mi desempeño en el ámbito profesional. Vamos, aceptémoslo, que no es un currículo deslumbrante que desate pasiones y sobresalga por su notoriedad o su alto grado de visibilidad. No, al contrario, es tan o más humilde que el mismísimo autor, es decir, [***un completísimo desconocido***](https://cronicasdeilusos.blogspot.com/2026/03/se-busca-nombre-para-este-post.html). Allí está, allí se aloja lo poco que hay, y es lo que es, y eso es todo, no hay más...
 
