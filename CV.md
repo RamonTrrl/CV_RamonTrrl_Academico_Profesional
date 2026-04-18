@@ -97,7 +97,7 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 💻 Certificaciones digitales (Letra chiquita: "Siempre hay alguien más que te superará" ... pero quién?? ✔)
+## <img src="https://raw.githubusercontent.com/RamonTrrl/CV_RamonTrrl_Academico_Profesional/main/escalera-al-cielo.png" height="75" align="middle"/> Certificaciones digitales (Letra chiquita: "Siempre hay alguien más que te superará" ... pero quién?? ✔)
 
 👉 Ver repositorio completo: [Certificados-digitales](https://github.com/RamonTrrl/Certificados-digitales)
 
