@@ -5,7 +5,7 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com  | ramontrrl@yandex.com
 
 📬 👁‍🗨ojito👁‍🗨 copia el correo y pega en el browser para su ejecución ya que el enlace no te llevará a ningún lado a menos que tengas la app de mensajeria descargada  
 
-📱 (+51) 997657492 | Si nunca contesto no es porque haya cambiado de número, sino que no me da gana hacerlo 😜
+☎️ (+51) 997657492 | Si nunca contesto no es porque haya cambiado de número, sino que no me da gana hacerlo 😜
 💻 [github.com/RamonTrrl](https://github.com/RamonTrrl) | La única verdadera red social ... para nerds 👌
 
 ---
