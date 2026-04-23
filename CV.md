@@ -131,7 +131,7 @@ Colaborador independiente — creación y mejora de artículos.
 
 - 📝 [Crónicas de un observador](https://cronicasdeilusos.blogspot.com/)  | El eterno sitio desindexado dado a su dudosa reputación
 - 📰 [Revista JifiNET](https://jifinetcom.wordpress.com/)  | Algo interesante para leer
-- 💻 [Portafolio GitHub](https://github.com/RamonTrrl)  | Los repo más cools con casi nada de código y demasido floro (palabrería)
+- 💻 [Portafolio GitHub](https://github.com/RamonTrrl)  | Los repos más cools con casi nada de código y demasido floro (palabrería)
 
 ---
 
