@@ -1,11 +1,12 @@
 # 🎓💼✨ Currículum Vitae (Letra Chiquita: un verdadero ejemplo ... pero a no seguir😋)
 ## Marco Ramón Torrel Villanueva
 **Ingeniero Agrónomo | M.Sc. Producción y Extensión Agrícola**   
-ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com  
+ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com  | ramontrrl@yandex.com
 
 📬 👁‍🗨ojito👁‍🗨 copia el correo y pega en el browser para su ejecución ya que el enlace no te llevará a ningún lado a menos que tengas la app de mensajeria descargada  
 
-📱 (+51) 997657492 | 💻 [github.com/RamonTrrl](https://github.com/RamonTrrl)
+📱 (+51) 997657492 | Si nunca contesto no es porque haya cambiado de número, sino que no me da gana hacerlo 😜
+💻 [github.com/RamonTrrl](https://github.com/RamonTrrl) | La única verdadera red social ... para nerds 👌
 
 ---
 
@@ -128,9 +129,9 @@ Colaborador independiente — creación y mejora de artículos.
 
 ## 🌐 Publicaciones digitales (Letra chiquita: todo un escritor ... o un peor autor✍)
 
-- 📝 [Crónicas de un observador](https://cronicasdeilusos.blogspot.com/)
-- 📰 [Revista JifiNET](https://jifinetcom.wordpress.com/)
-- 💻 [Portafolio GitHub](https://github.com/RamonTrrl)
+- 📝 [Crónicas de un observador](https://cronicasdeilusos.blogspot.com/)  | El eterno sitio desindexado dado a su dudosa reputación
+- 📰 [Revista JifiNET](https://jifinetcom.wordpress.com/)  | Algo interesante para leer
+- 💻 [Portafolio GitHub](https://github.com/RamonTrrl)  | Los repo más cools con casi nada de código y demasido floro (palabrería)
 
 ---
 
