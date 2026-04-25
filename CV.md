@@ -1,4 +1,5 @@
-# 🎓💼✨ Currículum Vitae (Letra Chiquita: un verdadero ejemplo ... pero a no seguir😋)
+# 🎓💼✨ Currículum Vitae  
+(Letra Chiquita: un verdadero ejemplo ... pero a no seguir😋)
 ## Marco Ramón Torrel Villanueva
 **Ingeniero Agrónomo | M.Sc. Producción y Extensión Agrícola**   
 ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com  | ramontrrl@yandex.com
@@ -10,7 +11,8 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com  | ramontrrl@yandex.com
 
 ---
 
-## 🎓 Títulos académicos (Letra Chiquita: los pergaminos de un eterna ilusión ... ah!! pero el orgullo de tus viejos👴👩‍🦳)
+## 🎓 Títulos académicos  
+(Letra Chiquita: los pergaminos de un eterna ilusión ... ah!! pero el orgullo de tus viejos👴👩‍🦳)
 
 | Título | Institución | Año | Documento |
 |---|---|---|---|
@@ -20,7 +22,8 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com  | ramontrrl@yandex.com
 
 ---
 
-## 🌍 Formación internacional (Letra chiquita: vaya, no contaba con ello😮)
+## 🌍 Formación internacional  
+(Letra chiquita: vaya, no contaba con ello😮)
 
 | Curso | Institución | País | Año | Documento |
 |---|---|---|---|---|
@@ -29,7 +32,8 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com  | ramontrrl@yandex.com
 
 ---
 
-## 🗣️ Idiomas (Letra chiquita: vamos viejo, se te olvidó el ["inglés peruano"](https://cronicasdeilusos.blogspot.com/2021/10/ingles-peruano.html)😊)
+## 🗣️ Idiomas  
+(Letra chiquita: vamos viejo, se te olvidó el ["inglés peruano"](https://cronicasdeilusos.blogspot.com/2021/10/ingles-peruano.html)😊)
 
 | Idioma | Nivel escrito | Nivel hablado |
 |---|---|---|
@@ -39,7 +43,8 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com  | ramontrrl@yandex.com
 
 ---
 
-## 💼 Experiencia profesional (Letra chiquita: bueno aceptémoslo, "algo es algo peor es nada"😏)
+## 💼 Experiencia profesional  
+(Letra chiquita: bueno aceptémoslo, "algo es algo peor es nada"😏)
 
 **1990 – 1995** · Investigador becario
 Centro Internacional de la Papa (CIP) — Departamento de Entomología
@@ -58,7 +63,8 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 👨‍🏫 Trayectoria docente (Letra chiquita: por fin, [algo interesante en este cv](https://cronicasdeilusos.blogspot.com/2021/04/como-se-escribe-un-cv.html)👏)
+## 👨‍🏫 Trayectoria docente  
+(Letra chiquita: por fin, [algo interesante en este cv](https://cronicasdeilusos.blogspot.com/2021/04/como-se-escribe-un-cv.html)👏)
 
 | Año | Institución | Asignatura | Nivel | Documento |
 |---|---|---|---|---|
@@ -66,7 +72,8 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 🏅 Participación en congresos (Letra chiquita: no pareces ser uno de [los "Hnos TV"](https://jifinetcom.wordpress.com/)😍)
+## 🏅 Participación en congresos  
+(Letra chiquita: no pareces ser uno de [los "Hnos TV"](https://jifinetcom.wordpress.com/)😍)
 
 | Evento | Ponencia | Año | Documento |
 |---|---|---|---|
@@ -74,7 +81,8 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 🔬 Membresías profesionales (Letra chiquita: solía aportar algunos centavos ... bueno, [como dice "mi vieja"](https://cronicasdeilusos.blogspot.com/2021/07/mi-vieja-y-su-risa.html): te dan un alfiler para sacarte un barreta😪)
+## 🔬 Membresías profesionales  
+(Letra chiquita: solía aportar algunos centavos ... bueno, [como dice "mi vieja"](https://cronicasdeilusos.blogspot.com/2021/07/mi-vieja-y-su-risa.html): te dan un alfiler para sacarte un barreta😪)
 
 | Organización | Documento |
 |---|---|
@@ -83,14 +91,16 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 📄 Publicaciones académicas (Letra chiquita: lo más seguro es que te jubilarás en Scopus y nadie leerá tus pdf... mejor sigue con tu blog😭)
+## 📄 Publicaciones académicas  
+(Letra chiquita: lo más seguro es que te jubilarás en Scopus y nadie leerá tus pdf... mejor sigue con tu blog😭)
 
 - Torrel, M., Canto, M. (1992). *Efecto de nueve enmiendas orgánicas en el control de Globodera pallida Raza P4A*. II Congreso Peruano de Nematología. Cajamarca, Perú.
 - Torrel, M., Alcázar, J. (2022). *Avances del estudio del conocimiento del control del gorgojo de los Andes (Premnotrypes vorax) en la comunidad de Chilimpampa, Cajamarca-Perú*. CIENER 2022.
 
 ---
 
-## 📜 Certificaciones académicas (Letra chiquita: ¡Solamente "una"! ... diablos!! quizás deberias hacer menos publicaciones en ***rrss*** y más de este tipo😣) 
+## 📜 Certificaciones académicas  
+(Letra chiquita: ¡Solamente "una"! ... diablos!! quizás deberias hacer menos publicaciones en ***rrss*** y más de este tipo😣) 
 
 | Curso | Institución | Año | Documento |
 |---|---|---|---|
@@ -98,7 +108,8 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## <img src="https://raw.githubusercontent.com/RamonTrrl/CV_RamonTrrl_Academico_Profesional/main/escalera-al-cielo.png" height="75" align="middle"/> Certificaciones digitales (Letra chiquita: "Siempre hay alguien más que te superará" ... pero quién?? ✔)
+## <img src="https://raw.githubusercontent.com/RamonTrrl/CV_RamonTrrl_Academico_Profesional/main/escalera-al-cielo.png" height="75" align="middle"/> Certificaciones digitales  
+(Letra chiquita: "Siempre hay alguien más que te superará" ... pero quién?? ✔)
 
 👉 Ver repositorio completo: [Certificados-digitales](https://github.com/RamonTrrl/Certificados-digitales)
 
@@ -115,7 +126,8 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 🖥️ Habilidades digitales (Letra chiquita: baya, baya, todo un nerdcito geek💎)
+## 🖥️ Habilidades digitales  
+(Letra chiquita: baya, baya, todo un nerdcito geek💎)
 
 - Suite ofimática: Word, Excel, PowerPoint, Power BI, SPSS
 - Desarrollo web: HTML, CSS, JavaScript básico
@@ -127,7 +139,8 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 🌐 Publicaciones digitales (Letra chiquita: todo un escritor ... o un peor autor✍)
+## 🌐 Publicaciones digitales  
+(Letra chiquita: todo un escritor ... o un peor autor✍)
 
 - 📝 [Crónicas de un observador](https://cronicasdeilusos.blogspot.com/)  | El eterno sitio desindexado dado a su dudosa reputación
 - 📰 [Revista JifiNET](https://jifinetcom.wordpress.com/)  | Algo interesante para leer
@@ -135,7 +148,8 @@ Colaborador independiente — creación y mejora de artículos.
 
 ---
 
-## 📞 Referencias (Letra chiquita: solian ser muy amables... espero den mejores reseñas que las que uno mismo se tiene🙌)
+## 📞 Referencias  
+(Letra chiquita: solian ser muy amables... espero den mejores reseñas que las que uno mismo se tiene🙌)
 
 | Nombre | Cargo | Contacto |
 |---|---|---|
