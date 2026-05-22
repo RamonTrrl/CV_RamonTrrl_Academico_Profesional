@@ -9,6 +9,8 @@ ing.mtorrel@hotmail.com | ing.mrtorrel@gmail.com  | ramontrrl@yandex.com
 ☎️ (+51) 997657492 | Si nunca contesto no es porque haya cambiado de número, sino que no me da gana hacerlo 😜
 💻 [github.com/RamonTrrl](https://github.com/RamonTrrl) | La única verdadera red social ... para nerds 👌
 
+[DNI académico del "Sr. paper"](https://orcid.org/0009-0004-6790-0705) | Que no te sorprenda no hallar nada en este "***paipercito***"😜
+
 ---
 
 ## 🎓 Títulos académicos  
